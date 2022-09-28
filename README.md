@@ -1,2 +1,0 @@
-# YouAreCrackManXD
-YouAreCrackManXD
